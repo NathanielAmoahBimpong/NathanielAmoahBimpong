@@ -6,5 +6,5 @@
 - 💬 Ask me about anything 
 - 📫 How to reach me: amoahbimpongn@gmail.com
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: I speak 3 languages(English, French, Twi)
+- ⚡ Fun fact: I speak 3 languages(English, German, Twi)
 
